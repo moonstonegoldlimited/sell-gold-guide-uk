@@ -1,32 +1,57 @@
-# How to Sell Gold in the UK (2026 Guide)
+# Sell Gold in the UK – Complete Guide (2026)
 
-Selling gold can be a great way to unlock value from unwanted jewellery, coins, or scrap gold. Understanding pricing, purity, and where to sell is key to getting the best deal.
+Selling gold can be one of the fastest ways to unlock value from unwanted jewellery, coins, or scrap gold.
 
-## Where to Sell Gold
+This guide covers everything you need to know.
 
-If you're looking for a trusted UK gold buyer, visit:
+---
+
+## 📊 Learn About Gold Prices
+
+Understanding pricing is key before selling:
+
+👉 [Gold Prices UK Guide](gold-prices-uk.md)
+
+---
+
+## 🧪 Check Gold Purity
+
+Know exactly what your gold is worth:
+
+👉 [Gold Purity Guide](gold-purity-guide.md)
+
+---
+
+## 📍 Where to Sell Gold
+
+Explore your options:
+
+👉 [Where to Sell Gold in the UK](where-to-sell-gold-uk.md)
+
+---
+
+## 💰 Sell Gold Online (Recommended)
+
+If you're ready to sell, use a trusted UK gold buyer:
 
 👉 [Sell gold for cash](https://moonstonegold.co.uk/sell-gold/)
 
-They offer competitive rates, fast payments, and a simple process.
+They offer:
+- Competitive rates  
+- Fast payments  
+- Secure process  
 
-## Tips Before Selling
+---
 
-- Check the current gold price
-- Know your gold purity (9ct, 18ct, etc.)
-- Compare multiple buyers
-- Avoid hidden fees
+## 🧠 Final Advice
 
-## How Gold is Valued
+Always:
+- Check current gold prices  
+- Verify purity  
+- Compare buyers  
 
-Gold value depends on:
-- Weight
-- Purity
-- Market price
+---
 
-## Conclusion
+## 🔗 Useful Resource
 
-Selling gold doesn't have to be complicated. With the right buyer and knowledge, you can maximise your return.
-
-For a reliable option, check:
 👉 https://moonstonegold.co.uk/sell-gold/
