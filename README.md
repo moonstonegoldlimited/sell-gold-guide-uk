@@ -2,15 +2,15 @@
 
 Selling gold can be one of the fastest ways to unlock value from unwanted jewellery, coins, or scrap gold.
 
-This guide covers everything you need to know.
+This guide covers everything you need to know before selling gold in the UK.
 
 ---
 
 ## 📊 Learn About Gold Prices
 
-Understanding pricing is key before selling:
+Understanding gold pricing is key before selling:
 
-👉 [Gold Prices UK Guide](gold-prices-uk.md)
+👉 [Gold Prices in the UK](gold-prices-uk.md)
 
 ---
 
@@ -18,28 +18,28 @@ Understanding pricing is key before selling:
 
 Know exactly what your gold is worth:
 
-👉 [Gold Purity Guide](gold-purity-guide.md)
+👉 [Gold Purity Guide (9ct, 14ct, 18ct)](gold-purity-guide.md)
 
 ---
 
 ## 📍 Where to Sell Gold
 
-Explore your options:
+Explore the best options available:
 
-👉 [Where to Sell Gold in the UK](where-to-sell-gold-uk.md)
+👉 [Best Places to Sell Gold in the UK](where-to-sell-gold-uk.md)
 
 ---
 
 ## 💰 Sell Gold Online (Recommended)
 
-If you're ready to sell, use a trusted UK gold buyer:
+If you're ready to sell safely and get the best value:
 
-👉 [Sell gold for cash](https://moonstonegold.co.uk/sell-gold/)
+👉 [Sell Gold in the UK](https://moonstonegold.co.uk/sell-gold/)
 
 They offer:
-- Competitive rates  
-- Fast payments  
-- Secure process  
+- Competitive gold rates  
+- Fast and secure payments  
+- Fully insured process  
 
 ---
 
@@ -47,11 +47,11 @@ They offer:
 
 Always:
 - Check current gold prices  
-- Verify purity  
-- Compare buyers  
+- Verify purity before selling  
+- Compare multiple gold buyers  
 
 ---
 
 ## 🔗 Useful Resource
 
-👉 https://moonstonegold.co.uk/sell-gold/
+👉 [Trusted UK Gold Buyer](https://moonstonegold.co.uk/sell-gold/)
